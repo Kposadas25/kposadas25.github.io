@@ -1,0 +1,1 @@
+This is a game i created to help students are desired learners to gain knowledge about Henry the VIII 6 wives. The game will give you information on who they were and what they had to live while with Henry. The is concidered to be a 'choose your own adventure', I hope all who play will enjoy and find new facts when being in the wifes shoe. Play on.
